@@ -1,1 +1,1 @@
-my second commit
+i have  a growth mindset
